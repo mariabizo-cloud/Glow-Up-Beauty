@@ -1,1 +1,1 @@
-# Glow-Up-Beauty
+# Glow-up-beauty
